@@ -1,1 +1,1 @@
-https://ichirinkumoi.github.io/marylou/
+https://ichirinkumoi.github.io/surevomit/
